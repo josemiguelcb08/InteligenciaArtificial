@@ -6,5 +6,4 @@ Francisco Tolosa C.C 1.036.962.614 Bioingeniería.
 
 ```
 Video en YouTube
-https://www.youtube.com/watch?v=B_J9b8BXsMI
 ---
